@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... I am currently only making visuals through AI means
 - 💞️ I’m looking to collaborate on ... I don't have time for this yet.
 - 📫 How to reach me ... from here 
-- 😄 Pronouns: ...
+- 😄 Pronouns: ... boy
 - ⚡ Fun fact: ...
 
 <!---
